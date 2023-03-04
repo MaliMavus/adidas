@@ -1,1 +1,1 @@
-# ad-das-shoes
+# adidas
